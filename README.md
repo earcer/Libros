@@ -1,2 +1,3 @@
-# Libros
-libros en Gitbook
+# Borrador de la Nueva Constitución
+
+CONSOLIDADO NORMAS APROBADAS PARA LA PROPUESTA CONSTITUCIONAL POR EL PLENO DE LA CONVENCIÓN
